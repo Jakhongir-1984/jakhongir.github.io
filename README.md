@@ -1,1 +1,1 @@
-# jakhongir-1984.github.io
+# jakhongir.github.io
